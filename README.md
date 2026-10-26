@@ -1,7 +1,7 @@
 <p><b>After Tim got banned by Meta for creating InstaPy and teaching 100K+ people how to automate social media, he now focuses on other areas away from Social Media.</p>
 </p>If you want real growth without risking your account:</p>
 
-👉 <a href="https://growus.io/en/?agent=rec1zpV0XtFbO1Ku1&utm_source=instapy">Try out growus.io</a>
+👉 <a href="https://growus.io/en/?agent=rec1zpV0XtFbO1Ku1&utm_source=instapy&coupon=WELCOME-ME-20">Try out growus.io (20% off)</a>
 
 <br />
 <hr />
